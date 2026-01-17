@@ -184,4 +184,4 @@ Thank you for giving me this oppotunity.
 
 Kind regards,
 
-Kingkamon Yuyod
+Kingkamon Y.
