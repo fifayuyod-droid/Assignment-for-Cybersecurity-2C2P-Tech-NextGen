@@ -183,5 +183,3 @@ Questions:
 Thank you for giving me this oppotunity.
 
 Kind regards,
-
-Kingkamon Y.
